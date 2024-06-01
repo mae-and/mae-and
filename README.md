@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 🙋🏼‍♀️
 
 🫖 I'm Mae, a software engineer based in London, UK. 
 
